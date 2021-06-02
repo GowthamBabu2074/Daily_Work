@@ -1,1 +1,1 @@
-May 29 - May 30 family trip
+May 29 - May 31 family trip
